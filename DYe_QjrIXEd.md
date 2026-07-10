@@ -1,10 +1,10 @@
 # DYe_QjrIXEd
 
-Werbung für ein 5€ Sales-Training mit Verweis auf verifizierte Erfolgszahlen des Anbieters.
+Vertriebstrainer bewirbt ein 5€-Sales-Training mit Verweis auf seine (unbelegte, aber plausible) Erfahrung aus Calls, Umsatz und Unternehmensgründungen.
 
 **Quelle:** https://www.instagram.com/reel/DYe_QjrIXEd/
-**Kategorie:** Skripte & Formulierungen, Verkaufspsychologie
+**Kategorie:** Skripte & Formulierungen, Storytelling & Framing
 **Medientyp:** video
 **Urteil:** macht Sinn
 
-**Prüf-Vermerk:** Zentrale Fakten (53.000 Calls, 9 Mio. Umsatz, drei Unternehmen) durch mehrere Quellen bestätigt. Angebot eines 5€-Trainings ist plausibel und kein erkennbarer Scam, Marketing-Sprache wird nicht negativ gewertet.
+**Prüf-Vermerk:** Zentrale Zahlen (53.000 Calls, 9 Mio. Umsatz, drei Unternehmen) sind Eigenangaben und nicht unabhängig verifizierbar, aber nicht widerlegt oder widersprüchlich. Es handelt sich um übliche Selbstvermarktung eines Vertriebstrainers mit günstigem Produkt (5€), kein Hinweis auf Täuschung oder unrealistische Gewinnversprechen für den Käufer selbst.
